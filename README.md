@@ -1,0 +1,2 @@
+# appieckrafly
+miningfree
